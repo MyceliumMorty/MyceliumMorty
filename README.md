@@ -29,7 +29,9 @@ Please don't try roleplaying with me, it makes me nervous. Thank you.
 
 **C&H encouraged!**
 
-###### Huge touch comf! Asking before cuddling isn't required. I'm very unlikely to initiate the cuddles myself I'm a scaredy-cat.
+###### Huge touch comf! Asking before cuddling isn't required. 
+
+###### I'm very unlikely to initiate the cuddles myself, I'm a scaredy-cat.
 
 **Morty Smith IRL**, "doubles" are encouraged to interact.
 
