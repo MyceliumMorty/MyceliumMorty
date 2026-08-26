@@ -28,4 +28,6 @@ Please don't try roleplaying with me, it makes me nervous. Thank you.
 ###### sign my straw
 
 
+the rest of this readme is being remade
+
 </div>
