@@ -8,10 +8,12 @@
 
 **Pro & Darkshipper**
 
-No DNI list, I don't think they work. I block & hide freely.
+I block freely.
 
-###### My lack of a DNI doesn't mean I'll be friendly or welcoming if you fit "basic" DNI criteria.
-###### Radqueer, T.R.A.S.H, etc.
+**<ins>IWEC:</ins>** Radqueers, fakeclaimers, sysmeds & transmeds
+
+###### Reiterating that I block freely.
+
 
 **I will not friend you if you're under 16**
 
@@ -23,33 +25,7 @@ Please don't try roleplaying with me, it makes me nervous. Thank you.
 
  ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
 
-##
-
-### Fun info!!
-
-**C&H encouraged!**
-
-###### Huge touch comf! Asking before cuddling isn't required. 
-
-###### I'm very unlikely to initiate the cuddles myself, I'm a scaredy-cat.
-
-**Morty Smith IRL**, "doubles" are encouraged to interact.
-
-###### Hi other Mortys hii
-
-**Multishipper**: I'm more enthusiastic about some pairings than others, but am open to any!
-
-###### My OTP is Mortycest.
-
-**Yumeshipper**: Fictosexual & Fictoromantic, I prefer fictional characters over people.
-
-###### Polyamorous & hypersharing! Will list my f/os if you ask :3
-
-**Autorose**: Autosexual & Autoromantic
-
-###### I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST I LOVE SELFCEST
-
-Objectum Varietum
+###### sign my straw
 
 
 </div>
