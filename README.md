@@ -21,6 +21,8 @@ Please don't try roleplaying with me, it makes me nervous. Thank you.
 
 ###### I might be unresponsive / nonverbal sometimes, words are difficult. Patience is very appreciated.
 
+C&H always whenever - no need to ask first!
+
 ##
 
  ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
