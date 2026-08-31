@@ -12,7 +12,7 @@ I block freely.
 
 **<ins>IWEC:</ins>** Radqueers, fakeclaimers, transmeds
 
-###### Reiterating that I block freely.
+###### Reiterating that I block <ins>freely.</ins>
 
 
 **I will not friend you if you're under 16**
