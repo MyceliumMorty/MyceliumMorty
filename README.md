@@ -27,7 +27,7 @@ C&H always whenever - no need to ask first!
 
  ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
 
-###### sign my straw
+###### sign my straw , just added a canvas send me drawings maybe
 
 
 the rest of this readme is being remade
