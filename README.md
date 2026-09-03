@@ -4,7 +4,7 @@
 
 17 years old - 18 on September 04 
 
-###### Friday oh god oh god oh god oh god
+###### that's tomorrow!
 
 **Pro & Darkshipper**
 
