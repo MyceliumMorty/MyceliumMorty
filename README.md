@@ -10,7 +10,7 @@
 
 I block freely.
 
-**<ins>IWEC:</ins>** Radqueers, fakeclaimers, transmeds
+**<ins>IWEC:</ins>** radqueers, fakeclaimers, transmeds
 
 ###### Reiterating that I block <ins>freely.</ins>
 
