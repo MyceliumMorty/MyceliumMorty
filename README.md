@@ -2,9 +2,9 @@
 
 ### BYI:
 
-17 years old - 18 on September 04 
+18 years old
 
-###### that's tomorrow!
+###### birthday today yay birthday
 
 **Pro & Darkshipper**
 
