@@ -2,7 +2,8 @@
 
 <img width="30%" height="30%" alt="d034196af8c84ad603b02ee23f3de315" src="https://github.com/user-attachments/assets/2f02a620-5015-4881-a17a-7bb6cfde557a" />
 
-### BYI:
+
+⠀ ⠀ ⠀ ⠀ ⠀
 
 18 years old
 
@@ -27,11 +28,11 @@ C&H always whenever - no need to ask first!
 
 ##
 
- ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀[Pronouns](https://mortysmithpronouns.straw.page) ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
-
-###### sign my straw , just added a canvas send me drawings maybe
+[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀[Pronouns](https://mortysmithpronouns.straw.page) ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
 
 
-the rest of this readme is being remade
+
+
+###### the rest of this readme is being remade
 
 </div>
