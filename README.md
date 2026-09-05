@@ -1,15 +1,11 @@
 <div align=center>
 
-<img width="30%" height="30%" alt="d034196af8c84ad603b02ee23f3de315" src="https://github.com/user-attachments/assets/2f02a620-5015-4881-a17a-7bb6cfde557a" />
-
-
-⠀ ⠀ ⠀ ⠀ ⠀
 
 18 years old
 
-###### birthday today yay birthday
+###### 2008/09/04
 
-**Pro & Darkshipper**
+**Pro-fiction & Pro-ship, Comshipper & Darkshipper**
 
 I block freely.
 
