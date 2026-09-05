@@ -1,5 +1,6 @@
 <div align=center>
 
+They/It/He + [More Pronouns](https://mortysmithpronouns.straw.page) 
 
 18 years old
 
@@ -24,7 +25,7 @@ C&H always whenever - no need to ask first!
 
 ##
 
-[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀[Pronouns](https://mortysmithpronouns.straw.page) ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
+   ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
 
 
 
