@@ -16,9 +16,9 @@ I block freely.
 
 **I will not friend you if you're under 16**
 
-Please don't try roleplaying with me, it makes me nervous. Thank you.
+Please don't try roleplaying with me, it makes me anxious and uncomfortable. Thank you.
 
-###### I might be unresponsive / nonverbal sometimes, words are difficult. Patience is very appreciated.
+###### I might be unresponsive / nonverbal sometimes, words are difficult. Patience is very appreciated!
 
 C&H always whenever - no need to ask first!
 
