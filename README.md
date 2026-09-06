@@ -1,6 +1,12 @@
 <div align=center>
 
-They/It/He + [More Pronouns](https://mortysmithpronouns.straw.page) 
+<img width="380" height="376" alt="rick-and-morty-rick-sanchez" src="https://github.com/user-attachments/assets/65ff6acb-700c-4f54-8815-a91ba55735be" />
+
+⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀
+
+Evo, Morty or Percy
+
+They/It/He + [more pronouns](https://mortysmithpronouns.straw.page) 
 
 18 years old
 
