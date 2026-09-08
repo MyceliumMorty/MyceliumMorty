@@ -14,11 +14,9 @@ They/It/He + [more pronouns](https://mortysmithpronouns.straw.page)
 
 **Pro-fiction & Pro-ship, Comshipper & Darkshipper**
 
-I block freely.
+I block <ins>freely.</ins>
 
 **<ins>IWEC:</ins>** radqueers, fakeclaimers, transmeds
-
-###### Reiterating that I block <ins>freely.</ins>
 
 
 **I will not friend you if you're under 16**
@@ -33,9 +31,7 @@ C&H always whenever - no need to ask first!
 
    ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
 
+###### Remaking Straw AGAIN. find the WIP [here](https://evoprime.straw.page)
 
-
-
-###### the rest of this readme is being remade
 
 </div>
