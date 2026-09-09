@@ -33,5 +33,6 @@ C&H always whenever - no need to ask first!
 
 ###### Remaking Straw AGAIN. find the WIP [here](https://evoprime.straw.page)
 
+###### ik this git looks messy, I'll revamp it soon.
 
 </div>
