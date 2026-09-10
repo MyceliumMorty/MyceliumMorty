@@ -12,12 +12,9 @@ They/It/He + [more pronouns](https://mortysmithpronouns.straw.page)
 
 ###### 2008/09/04
 
-**Pro-fiction & Pro-ship, Comshipper & Darkshipper**
+**Comshipper & Darkshipper**
 
 I block <ins>freely.</ins>
-
-**<ins>IWEC:</ins>** radqueers, fakeclaimers, transmeds
-
 
 **I will not friend you if you're under 16**
 
