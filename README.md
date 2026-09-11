@@ -26,9 +26,8 @@ C&H always whenever - no need to ask first!
 
 ##
 
-   ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://mmortysmith.straw.page)
+   ⠀ ⠀[Guns.lol](https://guns.lol/mortysmith)⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀  ⠀ ⠀  [Straw.page](https://evoprime.straw.page)
 
-###### Remaking Straw AGAIN. find the WIP [here](https://evoprime.straw.page)
 
 ###### ik this git looks messy, I'll revamp it soon.
 
