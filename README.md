@@ -31,6 +31,6 @@ I block <ins>freely.</ins>
 
 ##
 
-Peep my [Straw.page](https://evoprime.straw.page) it has more info & an AMA.
+Peep my [Straw.page](https://evoprime.straw.page), it has more info & an AMA.
 
 </div>
