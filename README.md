@@ -36,4 +36,6 @@ I will not friend you if you're under 16.
 
 Peep my [Straw.page](https://evoprime.straw.page), it has more info & an AMA.
 
+###### Be creative with your hatemail, I only respond to the funny ones.
+
 </div>
