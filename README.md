@@ -38,6 +38,5 @@ Peep my [Straw.page](https://evoprime.straw.page), it has more info & an AMA.
 
 ###### Be creative with your hatemail, I only respond to the funny ones.
 
-Bonus (WIP) [Straw.page](https://perceval.straw.page) I made for my yumesona. (WIP)
 
 </div>
