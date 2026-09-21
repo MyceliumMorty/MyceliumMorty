@@ -20,6 +20,10 @@
 
 ###### Don't talk to me about shipcourse. It will go in one ear and out the other, IDGAF 😹
 
+
+
+</details>
+
 Morty, Evo or Percy
 
 They/It/He/Xe/Ztar + [more pronouns](https://mortysmithpronouns.straw.page) (plan to remake soon)
