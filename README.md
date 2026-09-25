@@ -28,6 +28,7 @@
 
 ### !! DARKSHIPPER FREAK !!
 
+Rickorty, Primecest, Evilprime etc.
 
 ###### Don't talk to me about shipcourse. It will go in one ear and out the other, IDGAF 😹
 
