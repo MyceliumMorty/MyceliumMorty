@@ -2,7 +2,7 @@
 
 
 
-![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="I-I'm+like--+I-I'm+your+dad,+Morty.+I'm+your+fucking+dad.+It's+fucking+me,+Morty!"&color=55CF6B&width=850&fontSize=18&height=30&x=80)
+![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="I-I'm+like--+I-I'm+your+dad,+Morty.+I'm+your+fucking+dad!+It's+fucking+me,+Morty!"&color=55CF6B&width=850&fontSize=18&height=30&x=80)
 
 
 
