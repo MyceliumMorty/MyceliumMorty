@@ -12,7 +12,7 @@
 
 
 
-![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="Yeah,+you're+my+dad!+I'm+your+son!"&color=D8B853&width=350&fontSize=18&height=30)
+![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="Yeah,+you're+my+dad!+I'm+your+son!"&color=eac644&width=350&fontSize=18&height=30)
 
 </div>
 
