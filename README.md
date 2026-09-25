@@ -19,7 +19,7 @@
 
 
 
-![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="You're,+my+son!"&color=55CF6B&width=500&fontSize=18&height=30&x=80)
+![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="You're+my+son!"&color=55CF6B&width=500&fontSize=18&height=30&x=80)
 
 
 ##
