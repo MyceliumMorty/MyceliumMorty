@@ -2,7 +2,7 @@
 
 
 
-![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="I-I'm+like--+I-I'm+your+dad,+Morty.+I'm+your+fucking+dad.+It's+fucking+me,+Morty!"&color=55CF6B&width=850&fontSize=18&height=30&x=120)
+![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="I-I'm+like--+I-I'm+your+dad,+Morty.+I'm+your+fucking+dad.+It's+fucking+me,+Morty!"&color=55CF6B&width=850&fontSize=18&height=30&x=80)
 
 
 
@@ -12,14 +12,14 @@
 
 
 
-![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="Yeah,+you're+my+dad!+I'm+your+son!"&color=D8B853&width=400&fontSize=18&height=30)
+![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="Yeah,+you're+my+dad!+I'm+your+son!"&color=D8B853&width=350&fontSize=18&height=30)
 
 </div>
 
 
 
 
-![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="You're,+my+son!"&color=55CF6B&width=500&fontSize=18&height=30&x=120)
+![](https://github-colored-text-fn3z.vercel.app/api/index.js?text="You're,+my+son!"&color=55CF6B&width=500&fontSize=18&height=30&x=80)
 
 
 ##
