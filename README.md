@@ -44,7 +44,7 @@ They/It/He/Xe/Ztar + [more pronouns](https://mortysmithpronouns.straw.page) (pla
 
 ###### 2008-09-04
 
-I will not friend you if you're under 16. 
+*I will not friend you if you're under 16.* 
 
 
 
