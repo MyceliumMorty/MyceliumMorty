@@ -50,7 +50,7 @@ They/It/He/Xe/Ztar + [more pronouns](https://mortysmithpronouns.straw.page) (pla
 
 ##
 
-Peep my [Straw.page](https://evoprime.straw.page), it has more info & an AMA.
+Peep my [Straw.page](https://evoprime.straw.page), it has more info & an AMA. (hi im revamping my straw again ok? it might look weird for a bit)
 
 ###### Be creative with your hatemail, I only respond to the funny ones.
 
