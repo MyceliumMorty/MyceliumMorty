@@ -38,7 +38,7 @@ Rickorty, Primecest, Evilprime etc.
 
 Morty, Evo or Percy
 
-They/It/He/Xe/Ztar + [more pronouns](https://mortysmithpronouns.straw.page) (plan to remake soon)
+They/It/He/Xe/Ztar
 
 18 years old
 
