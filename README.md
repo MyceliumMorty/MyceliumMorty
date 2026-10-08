@@ -44,7 +44,7 @@ They/It/He/Xe/Ztar
 
 ###### 2008-09-04
 
-*I will not friend you if you're under 16.* 
+-16 DNI. Other than that, I block freely.
 
 
 
