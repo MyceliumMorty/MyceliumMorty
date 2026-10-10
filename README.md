@@ -28,9 +28,9 @@
 
 ### !! DARKSHIPPER FREAK !!
 
-Rickorty, Primecest, Evilprime etc.
+Rickorty, Evilprime, Primecest etc.
 
-###### Don't talk to me about shipcourse. It will go in one ear and out the other, IDGAF 😹
+###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
 
 
 
@@ -44,7 +44,7 @@ They/It/He/Xe/Ztar
 
 ###### 2008-09-04
 
--16 DNI. Other than that, I block freely.
+-16 DNI.
 
 
 
