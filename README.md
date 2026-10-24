@@ -32,9 +32,7 @@ Rickorty, Evilprime, Primecest etc.
 
 ###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
 
-
-
-</details>
+────────────────────────
 
 Evo, Percy or Morty.
 
@@ -42,14 +40,17 @@ They/It/He/Xe/Ztar pronouns
 
 ###### + more, ask.
 
+────────────────────
+
 18 years old
 
 ###### 2008-09-04
 
+────────────────────────
+
 -16 DNI
 
 ###### I block freely.
-
 
 
 ##
