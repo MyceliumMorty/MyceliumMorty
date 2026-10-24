@@ -36,23 +36,27 @@ Rickorty, Evilprime, Primecest etc.
 
 </details>
 
-Morty, Evo or Percy
+Evo, Percy or Morty.
 
-They/It/He/Xe/Ztar
+They/It/He/Xe/Ztar pronouns
+
+###### + more, ask.
 
 18 years old
 
 ###### 2008-09-04
 
--16 DNI.
+-16 DNI
+
+###### I block freely.
 
 
 
 ##
 
-Peep my [Straw.page](https://evoprime.straw.page) new & improved
+Peep my [Straw.page](https://evoprime.straw.page)
 
-###### Be creative with your hatemail, I only respond to the funny ones.
+###### Be creative with your hatemail, I'm more likely to respond if it makes me giggle.
 
 
 </div>
