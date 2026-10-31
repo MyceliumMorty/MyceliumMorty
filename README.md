@@ -55,9 +55,10 @@ They/It/He/Xe/Ztar pronouns
 
 ##
 
-Peep my [Straw.page](https://evoprime.straw.page)
+Peep my [straw.page](https://evoprime.straw.page)
 
 ###### Be creative with your hatemail, I'm more likely to respond if it makes me giggle.
 
+Socials [guns.lol](https://guns.lol/glorievo)
 
 </div>
