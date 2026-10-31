@@ -28,7 +28,7 @@
 
 ### !! DARKSHIPPER FREAK !!
 
-Rickorty, Evilprime, Primecest etc.
+I'm evil and I ship Rickorty, Evilprime, Primecest etc.
 
 ###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
 
