@@ -28,15 +28,15 @@
 
 ### !! DARKSHIPPER FREAK !!
 
-I'm evil and I ship Rickorty, Evilprime, Primecest etc.
+I'm evil and I ship all flavors of Rickorty & other gross stuff like Summrick.
 
 ###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
 
 ────────────────────────
 
-Evo, Percy or Morty.
+Evo, Percy or Morty
 
-They/It/He/Xe/Ztar pronouns
+They/It/He/Xe/💥/!/Nameself pronouns
 
 ###### + more, ask.
 
@@ -59,6 +59,5 @@ Peep my [straw.page](https://evoprime.straw.page)
 
 ###### Be creative with your hatemail, I'm more likely to respond if it makes me giggle.
 
-Socials [guns.lol](https://guns.lol/glorievo)
 
 </div>
