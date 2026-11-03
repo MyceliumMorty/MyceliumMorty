@@ -55,7 +55,7 @@ They/It/He/Xe/💥/!/Nameself pronouns
 
 ##
 
-Peep my [straw.page](https://evoprime.straw.page)
+Peep my [straw.page](https://evowip.straw.page) WIP
 
 ###### Be creative with your hatemail, I'm more likely to respond if it makes me giggle.
 
