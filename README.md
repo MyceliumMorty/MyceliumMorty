@@ -26,9 +26,9 @@
 
 <div align=center>
 
-### !! DARKSHIPPER FREAK !!
+### ! DARKSHIPPER FREAK !
 
-I'm evil and I ship all flavors of Rickorty & other gross stuff like Summrick.
+I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 ###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
 
