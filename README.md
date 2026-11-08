@@ -32,13 +32,15 @@ I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 ###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
 
+Try to keep darkship discussion to a minimum if under 17, DNI if under 16.
+
 ────────────────────────
 
 Evo, Percy or Morty
 
 They/It/He/Xe/💥/!/Nameself pronouns
 
-────────────────────
+###### more on [pronouns](https://en.pronouns.page/@glorievo) page
 
 18 years old
 
