@@ -38,8 +38,6 @@ Evo, Percy or Morty
 
 They/It/He/Xe/💥/!/Nameself pronouns
 
-###### + more, ask.
-
 ────────────────────
 
 18 years old
@@ -50,9 +48,8 @@ They/It/He/Xe/💥/!/Nameself pronouns
 
 ##
 
-[pronouns](https://en.pronouns.page/@glorievo) ・ atabook ・ [straw.page](https://evilevoprime.straw.page)
+[pronouns](https://en.pronouns.page/@glorievo) ・ [atabook](https://glorievo.atabook.org/) ・ [straw.page](https://evilevoprime.straw.page)
 
-###### Be creative with your hatemail, I'm more likely to respond if it makes me giggle.
-
+###### peep my pronouns - send me hatemail through my ata - more info about #me on my strawpage
 
 </div>
