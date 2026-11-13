@@ -34,18 +34,13 @@ I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 DNI if under 16
 
-────────────────────────
+##
 
-Evo, Percy or Morty
-
-They/It/He/Xe/💥/!/Nameself pronouns
-
-###### more on [pronouns](https://en.pronouns.page/@glorievo) page
+Evo, Percy, EM or Morty
 
 18 years old
 
 ###### 2008-09-04
-
 
 
 ##
