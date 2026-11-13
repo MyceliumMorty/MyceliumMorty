@@ -34,6 +34,8 @@ I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 DNI if under 16
 
+###### @everyone IWCare
+
 ##
 
 Evo, Percy, EM or Morty
