@@ -50,8 +50,8 @@ They/It/He/Xe/💥/!/Nameself pronouns
 
 ##
 
-[pronouns](https://en.pronouns.page/@glorievo) ・ [atabook](https://glorievo.atabook.org/) ・ [straw.page](https://evilevoprime.straw.page)
+[pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://evilevoprime.straw.page)
 
-###### peep my pronouns - send me hatemail through my ata - more info about #me on my strawpage
+###### peep my pronouns - more info about #me on my strawpage
 
 </div>
