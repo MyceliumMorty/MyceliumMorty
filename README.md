@@ -26,7 +26,7 @@
 
 <div align=center>
 
-### DARKSHIPPER 
+### DARKSHIPPER FREAK
 
 I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
