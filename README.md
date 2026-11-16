@@ -26,11 +26,11 @@
 
 <div align=center>
 
-### ! DARKSHIPPER FREAK !
+### DARKSHIPPER 
 
 I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
-###### Any attempt to complain to me about ship discourse will go in one ear and out the other. IDGAF 😹
+###### I do not like engaging in ship discourse. If you'd like to argue about the ethics of darkshipping, find somewhere else to do it.
 
 DNI if under 16
 
