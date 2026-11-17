@@ -49,6 +49,6 @@ Evo, Percy, EM or Morty
 
 [pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://evilevoprime.straw.page)
 
-###### peep my pronouns - more info about #me on my strawpage
+###### pee my pronouns - straw now has tomatoes and music!
 
 </div>
