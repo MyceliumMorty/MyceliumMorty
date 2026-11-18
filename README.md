@@ -32,9 +32,7 @@ I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 ###### I do not like engaging in ship discourse. If you'd like to debate the ethics of darkshipping, find somewhere else to do it.
 
-DNI if under 16
-
-###### @everyone IWCare
+**Do not talk to me about darkships if you're under 16.**
 
 ##
 
