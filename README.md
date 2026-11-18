@@ -49,6 +49,6 @@ Evo, Percy, EM or Morty
 
 [pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://glorievo.straw.page)
 
-###### pee my pronouns - straw now has tomatoes and music!
+###### peep my pronouns - straw now has tomatoes and music!
 
 </div>
