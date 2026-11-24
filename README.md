@@ -45,8 +45,8 @@ Evo, Percy, EM or Morty
 
 ##
 
-[pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://glorievo.straw.page)
+[pronouns](https://en.pronouns.page/@glorievo) ・ [straw.page](https://glorievo.straw.page) ・ [atabook](https://glorievo.atabook.org)
 
-###### peep my pronouns - straw now has tomatoes and music!
+###### peep my pronouns - more info on straw - sign ata
 
 </div>
