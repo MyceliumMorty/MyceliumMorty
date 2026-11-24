@@ -32,11 +32,13 @@ I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 ###### I do not like engaging in ship discourse. If you'd like to debate the ethics of darkshipping, find somewhere else to do it.
 
-**Please do not talk to me about darkships in detail if you're under 16.**
+**Do not talk to me about darkships in detail if you're under 16.**
+
+###### Brief mentions are fine, but nothing more than that.
 
 ##
 
-Evo, Percy, EM or Morty
+**Evo**, Percy, EM or Morty
 
 18 years old
 
@@ -49,4 +51,8 @@ Evo, Percy, EM or Morty
 
 ###### peep my pronouns - more info on straw - sign ata
 
+
 </div>
+
+
+
