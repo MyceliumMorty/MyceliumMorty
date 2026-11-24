@@ -34,8 +34,6 @@ I'm evil and I ship all flavors of Rickorty + other gross stuff like Sumrick.
 
 **Do not talk to me about darkships in detail if you're under 16.**
 
-###### Brief mentions are fine, but nothing more than that.
-
 ##
 
 **Evo**, Percy, EM or Morty
